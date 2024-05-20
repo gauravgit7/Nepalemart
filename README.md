@@ -1,0 +1,2 @@
+Nepalemart is a web-based platform that addresses the gaps between buyers and the authentic offerings of local artisans and businesses by providing a platform that facilitates transactions and acts as a cultural and financial ambassador.
+The goal is to empower local entrepreneurs, highlight the diverse heritage of Nepal, and instill ethical commerce practices within the digital shopping experience.
